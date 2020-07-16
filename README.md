@@ -1,4 +1,4 @@
-# Kevin Tassi
+![](https://media-exp1.licdn.com/dms/image/C4E03AQG7TLTaZ8gaEg/profile-displayphoto-shrink_400_400/0?e=1600300800&v=beta&t=uFQtaS5p6NNjEo_s3j2KF68NHnCLU0-gLnMlux34h-U)
 
 Hi 👋  
   
